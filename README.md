@@ -10,8 +10,7 @@
 
 
 
-![Logo](https://i.ibb.co/tjBX8nG/New-Project-4.png)
-
+![Logo](https://i.postimg.cc/wBYCQJY5/New-Project-4.png)
 
 ## 🔗 Links
 
